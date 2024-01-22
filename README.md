@@ -1,6 +1,6 @@
 - 👋 Hi, I am Adrian
 - 🔥 I am is a person with Ambition
-- 🪐 Interstellar is my favorite things
+- 🪐 Interstellar is my favorite FILM
 - 🕐 My special skill is " T I M E "
 - 👨‍🎓 Now, I still Learn about programming
 
