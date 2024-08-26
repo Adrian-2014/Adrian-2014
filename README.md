@@ -1,5 +1,5 @@
 - 👋 Hi, I am Adrian
-- 🔥 I am is a person with Ambition
+- 🔥 I am a person with no hope, ambition, or even life
 - 🪐 Interstellar is my favorite FILM
 - 🕐 My special skill is " T I M E "
 - 👨‍🎓 Now, I still Learn about programming
